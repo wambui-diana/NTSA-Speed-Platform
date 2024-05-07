@@ -1,1 +1,0 @@
-# NTSA-Speed-Platform
